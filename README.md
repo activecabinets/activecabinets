@@ -1,8 +1,11 @@
 ## Hey there, the name's Russ/Aster/Zuka
 ≛
-<p>✦ 22, They/He pref. (Neos for close friends only), NB Acespec
-<b>✦ Zuka Fictkin, Doubles DNI</b>
-<b>✦ C+H allowed, W2I</b>
+/
+✦ 22, They/He pref. (Neos for close friends only), NB Acespec
+/
+✦ Zuka Fictkin, Doubles DNI
+/
+✦ C+H allowed, W2I
 # ✱ My Zuka is heavily inspired by @ilovezuka566672/Jurij's Zuka design on Twitter, please check them out their art deserves the love <3
 
 <!--
