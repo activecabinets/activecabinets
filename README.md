@@ -1,4 +1,4 @@
-## Hey there, the name's Russ/Aster/Zuka
+## 💬*Hey kid, wanna head out to battle?*
 ✦ 22, They/He, NB Acespec
 \
 ✦ Zuka Fictkin, Doubles DNI. C+H allowed. PT Skin inspo is fine, just let me know beforehand please<3/nf
