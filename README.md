@@ -1,5 +1,5 @@
 ## Hey there, the name's Russ/Aster/Zuka
-#≛
+# ≛
 \
 ✦ 22, They/He, NB Acespec
 \
