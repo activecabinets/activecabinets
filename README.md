@@ -1,13 +1,13 @@
 ## Hey there, the name's Russ/Aster/Zuka
-≛
+#≛
 \
-✦ 22, They/He pref. (Neos for close friends only), NB Acespec
+✦ 22, They/He, NB Acespec
 \
-✦ Zuka Fictkin, Doubles DNI
+✦ Zuka Fictkin, Doubles DNI. C+H allowed. PT Skin inspo is fine, just let me know beforehand please<3/nf
 \
-✦ C+H allowed, W2I
+✦ **NSFW jokes + <15 strictly DNI**, 15 and over interact at your own discretion
 \
-✱ **My Zuka is heavily inspired by @ilovezuka566672/Jurij's Zuka design on Twitter, please check them out their art deserves the love <3**
+✱ *My Zuka skin is heavily inspired by @ilovezuka566672/Jurij's Zuka design on Twitter, please check them out their art deserves the love <3*
 
 <!--
 **activecabinets/activecabinets** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
