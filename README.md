@@ -5,7 +5,7 @@
 \
 ✦ **NSFW jokes + <15 strictly DNI**, 15 and over interact at your own discretion
 \
-✱ *My Zuka skin is heavily inspired by (@ilovezuka566672/Jurij's)[https://x.com/ilovezuka566672] Zuka design on Twitter, please check them out their art deserves the love <3*
+✱ *My Zuka skin is heavily inspired by [@ilovezuka566672/Jurij's](https://x.com/ilovezuka566672) Zuka design on Twitter, please check them out their art deserves the love <3*
 
 <!--
 **activecabinets/activecabinets** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
